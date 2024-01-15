@@ -4,7 +4,7 @@
 - I’m looking to collaborate with JYPapi
 - How to reach me (dew_drxps on disc lmaooo)
 - Pronouns: She/Her/Hers
-- Fun fact: Im GOING to marry jyp
+- Fun fact: Im GOING to marry jyp <3
 
 <!---
 jyp-oppa/jyp-oppa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
